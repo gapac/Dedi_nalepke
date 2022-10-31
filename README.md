@@ -1,0 +1,2 @@
+# Dedi_nalepke
+ 
